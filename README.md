@@ -46,7 +46,7 @@ Plot No. 73 was originally allotted under Punarvasan Tappa 2.
 
 The original plot measured approximately **185.80 square meters (2,000 square feet).**
 
-Today, only around **500 square feet** appears to remain physically available.
+Today, only around **1000 square feet** appears to remain physically available.
 
 After decades of service in the Ministry of Defence, a senior citizen now faces another battle.
 
